@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Andrew! or people call me dew, drew, drewby dewby
+### Hi 👋 I'm Andrew!
 
 
 - 🔭 I’m currently working on my bachelors in Web design/Development
